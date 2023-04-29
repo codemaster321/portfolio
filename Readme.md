@@ -1,1 +1,1 @@
-The portfolio for showcasing my projects :slightly_smiling_face:
+The portfolio for showcasing my projects  &#128522;
